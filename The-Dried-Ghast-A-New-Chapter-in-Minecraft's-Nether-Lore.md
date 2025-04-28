@@ -1,5 +1,7 @@
 # The Dried Ghast: A New Chapter in Minecraft's Nether Lore
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Minecraft's latest update introduces a fascinating new feature: the **Dried Ghast**. This addition not only enriches the Nether's environment but also offers players a unique companion and mode of transportation.
 
 ## Discovering the Dried Ghast

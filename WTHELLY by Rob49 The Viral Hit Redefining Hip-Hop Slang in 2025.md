@@ -1,5 +1,7 @@
 **"WTHELLY" by Rob49: The Viral Hit Redefining Hip-Hop Slang in 2025**
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In early 2025, New Orleans rapper Rob49 dropped "WTHELLY," a high-energy track that quickly became a cultural phenomenon. The song's catchy hook, "What the helly?", has sparked a wave of memes, TikTok trends, and fan engagement across social media platforms.
 
 Released on February 24, 2025, "WTHELLY" showcases Rob49's signature Southern trap style, featuring booming 808s and assertive lyrics. The track has resonated with fans, climbing to number 16 on the Billboard Bubbling Under Hot 100 and reaching number 30 on the Hot R&B/Hip-Hop Songs chart. citeturn0search18

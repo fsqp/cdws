@@ -1,5 +1,7 @@
 **Florida Influencer Arrested for Alleged Sexual Activity with Pet Dog**
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In a deeply disturbing case that has garnered widespread attention, 27-year-old Logan Guminski from Ocala, Florida, has been arrested and charged with engaging in sexual activity with her pet Chihuahua and distributing explicit videos of the acts online. citeturn0search1
 
 **Investigation and Arrest**

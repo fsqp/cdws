@@ -1,5 +1,7 @@
 **Title: Exploring Ariana Grande's "Hampstead" Lyrics: A Deep Dive into Love, Reputation, and Renewal**
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Ariana Grande's latest track, "Hampstead," from her deluxe album *eternal sunshine deluxe: brighter days ahead*, offers a poignant reflection on love, personal growth, and the challenges of public scrutiny. Set against the backdrop of Hampstead, a charming neighborhood in North London, the song delves into Grande's emotional journey during a transformative period in her life.
 
 **A Glimpse into "Hampstead"**

@@ -1,5 +1,7 @@
 **"Hegseth's Signal Scandal: Leaked Texts Spark National Security Concerns"**
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 **Content:**
 
 In April 2025, U.S. Secretary of Defense Pete Hegseth faced intense scrutiny after reports emerged that he had shared sensitive military information via the encrypted messaging app Signal. The controversy began when it was revealed that Hegseth had disseminated details about planned airstrikes on Houthi targets in Yemen to a Signal group chat that included his wife, brother, and personal lawyer—individuals without the necessary security clearances citeturn0news17.

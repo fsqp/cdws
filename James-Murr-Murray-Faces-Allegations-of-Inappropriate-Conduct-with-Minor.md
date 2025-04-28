@@ -1,5 +1,7 @@
 # James "Murr" Murray Faces Allegations of Inappropriate Conduct with Minor
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 James "Murr" Murray, a member of the comedy troupe The Tenderloins and star of *Impractical Jokers*, is under scrutiny following allegations of inappropriate interactions with a minor.
 
 ## Allegations Surface

@@ -1,5 +1,7 @@
 # What Does “Nonge” Mean in *Adolescence* on Netflix?
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 In the final episode of Netflix’s British crime drama *Adolescence*, viewers may notice the word **“nonge”** spray-painted on Eddie Miller’s van. This term, though unfamiliar to many, carries significant weight within the context of the series.
 
 ---

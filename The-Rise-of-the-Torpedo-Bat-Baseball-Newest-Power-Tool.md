@@ -1,5 +1,7 @@
 # ⚾ The Rise of the Torpedo Bat: Baseball’s Newest Power Tool
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 Baseball is experiencing a technological renaissance, and at the heart of this transformation is the "torpedo bat." This innovative piece of equipment is reshaping how hitters approach the game, blending physics with tradition to enhance performance at the plate.
 
 ---

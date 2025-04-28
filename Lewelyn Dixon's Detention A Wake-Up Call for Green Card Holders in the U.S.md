@@ -1,5 +1,7 @@
 **Title:** "Lewelyn Dixon's Detention: A Wake-Up Call for Green Card Holders in the U.S."
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 **Introduction**
 
 In February 2025, Lewelyn Dixon, a 64-year-old University of Washington lab technician and legal permanent resident for over 50 years, was detained by U.S. Customs and Border Protection upon returning from the Philippines. This incident has sparked widespread concern about the treatment of long-term green card holders under current immigration enforcement policies.

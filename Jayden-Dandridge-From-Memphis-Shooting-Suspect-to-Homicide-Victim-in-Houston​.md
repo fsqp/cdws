@@ -1,5 +1,7 @@
 **Title:** Jayden Dandridge: From Memphis Shooting Suspect to Homicide Victim in Houston
 
+[![ai ghibli style converter](https://i.imgur.com/dwt8Y5G.gif)](https://witbeam.net/slzx)
+
 **Introduction**
 
 Jayden Dandridge, a 21-year-old man, was identified as the primary suspect in a Memphis shooting that resulted in the death of rapper Sayso P and injuries to Houston rapper Sauce Walka. Days later, Dandridge himself was found dead in Houston, Texas, with his death ruled a homicide.
